@@ -258,9 +258,9 @@ Performance Marketing Case Study — Crypto Trading Platform
 
 Open to Performance Marketing / Growth Roles
 
-- LinkedIn: (Add Link)
-- Email: (Add Email)
-- Portfolio: (Add Link)
+- LinkedIn: https://www.linkedin.com/in/ele-godswill-b84904376
+- Email: elegodswyll@gmail.com
+- Portfolio: 
 
 ---
 
