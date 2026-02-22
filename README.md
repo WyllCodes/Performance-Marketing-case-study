@@ -2,7 +2,7 @@
 ## Scaling Paid Acquisition for a Crypto Trading Platform
 
 
-![CoinBarn Ad 1](Creatives/control.png)
+![CoinBarn Ad 1](img/cryptomix.jpg)
 ---
 
 ## 🧠 Executive Summary
